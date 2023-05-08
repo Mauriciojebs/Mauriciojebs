@@ -1,4 +1,4 @@
 - 👋 Olá, sou @Mauriciojebs
 - 👀 Estou interessado em Projetos que transformem o mundo, a vida das pessoas para melhor.
-- 📫 Como me alcançar... mauriciosist@gmail.com
+- 📫 Como me alcançar... mauricio.rodrigues@jebsweb.com.br
 - :earth_africa::earth_americas::earth_asia::globe_with_meridians: Jebs!
